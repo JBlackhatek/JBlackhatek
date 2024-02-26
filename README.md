@@ -1,0 +1,3 @@
+Miluji kybernetickou bezpečnost, hackování a kybersoutěž! Třeba jsi na správné cestě... 
+
+Jinak já se jmenuji Lukáš Tichý, ale mám přezdívku Julius Blackhatek... Nikomu ale neříkej moje reálné jméno!
